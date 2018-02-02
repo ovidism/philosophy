@@ -5,10 +5,10 @@ Until when will we be controlled and ruled by a batch of old laws and believes, 
 We are the people, we are the crowd, we should decide together the laws, what is right and what is wrong. Until now, I believe science proved its unique importance.
 
 I propose a dynamic life and society which is based on fundamental and realistic needs of every individual as well for every society: 
-•	Knowledge
-•	Family
-•	Health
-•	Well being
+- Knowledge
+- Family
+- Health
+- Well being
 
 As many studies already show, we are influenced by society and people around us: if people are laughing and feel good, we are also feeling good and vice-versa. This creates a direct need for us to have interest that people around us and the society that we live in to be happy and healthy. This is what most people think and feel in my opinion and this represents the fundamentals of my philosophy.
 
